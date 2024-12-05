@@ -1,10 +1,10 @@
 # :sparkles::sparkles:9.1视频极速版下载安装发布页:sparkles::sparkles:
 
- :heart: :point_right: 【最新地址1】 ：https://91wy2.pages.dev/a1
+ :heart: :point_right: 【最新地址1】 ：http://2rd.cc/ （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址2】 ：https://91wy2.pages.dev/a2
+ :heart: :point_right: 【最新地址2】 ：http://28k3.cc/ （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址3】 ：https://91wy2.pages.dev/a3
+ :heart: :point_right: 【最新地址3】 ：http://3399.ga/ （点击打开，看完记得收藏)
  ------
 
 
